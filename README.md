@@ -2,7 +2,7 @@
 - 👀 I’m interested in space, video games, and reading.
 - 🌱 I’m currently learning about code and graphic deisgn.
 - 💞️ I’m looking to collaborate on nothing :)
-- 📫 How to reach me please don't :)
+- 📫 How to reach me: please don't :)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Denial is a river in Egypt.
 
